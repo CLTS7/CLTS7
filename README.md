@@ -1,0 +1,5 @@
+- 👋 Call me Clt
+- 👀 Interests: Rubik's puzzles, MBTI
+- 🌱 I’m currently learning: Variety of things
+- 💞️ I’m looking to collaborate on: No idea yet
+- 📫 How to reach me: Through this site hopefully
